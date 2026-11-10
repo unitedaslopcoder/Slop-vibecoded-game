@@ -1,0 +1,2 @@
+# Slop-vibecoded-game
+ok
